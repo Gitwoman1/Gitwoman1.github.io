@@ -1,4 +1,4 @@
-Growth mindset, to me, applies to everyday life. Being able to process new information and use that information to further your aspect and output in society. :grinning:
+Growth mindset, to me, applies to everyday life. Being able to process new information and use that information to further your aspect and output in society. 
 
 **My top 3 growth mindset reminders**
 1. Remind myself daily that there's more to life than what I know, 
